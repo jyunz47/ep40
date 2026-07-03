@@ -1,1 +1,1 @@
-ep40 learning handbook v2.1
+ep40 learning handbook v2.2
